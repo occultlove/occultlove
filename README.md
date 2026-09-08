@@ -1,4 +1,4 @@
-![](https://file.garden/an-yTFCHXQi7ofhX/IMG_5680.gif)
+<img src=“![](https://files.catbox.moe/5vy8i5.gif)” width=“20” height=“20” alt=“image”>
 <!--
 **occultlove/occultlove** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
