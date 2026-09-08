@@ -1,2 +1,1 @@
-![](https://file.garden/an-yTFCHXQi7ofhX/IMG_5680.gif)
-![](https://komarev.com/ghpvc/?username=occultloveyour-github-username&label=insects)
+[ata](https://occultwitches.atabook.org) , [fluffle](https://fluffle.cc/ladyalcina)  i cannot code 4 shit 🤗.
