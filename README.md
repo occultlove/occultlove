@@ -1,1 +1,1 @@
-[fluffle](https://fluffle.cc/ladyalcina) , [straw](https://sanfqrd.straw.page)  i cannot code 4 shit 🤗.
+[fluffle](https://fluffle.cc/ladyalcina) , [straw](https://sanfqrd.straw.page) , [prn](https://en.pronouns.page/@kariope)  i cannot code 4 shit 🤗.
